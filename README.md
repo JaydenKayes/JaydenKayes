@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning digital technology 
 - 💞️ I’m looking to collaborate on work
 - 📫 How to reach me don't
-- 😄 Pronouns: ze, zer
+- 😄 Pronouns: ball, sacks
 - ⚡ Fun fact: I dislike you bitch 
 
 <!---
